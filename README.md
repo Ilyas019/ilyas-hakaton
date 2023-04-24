@@ -1,1 +1,1 @@
-# ilyas-hakaton
+# StellarQuest.kz
